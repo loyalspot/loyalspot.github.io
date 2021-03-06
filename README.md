@@ -1,0 +1,1 @@
+# loyalspot.github.io
